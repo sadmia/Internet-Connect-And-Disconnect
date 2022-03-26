@@ -5,6 +5,8 @@ Live View Link : https://sadmia.github.io/Internet-Connect-And-Disconnect/
 
 Full Video Link : https://youtu.be/tM6MlpvaCIE
 
+Telegram : t.me/sadmia_com
+
 Website: www.sadmia.com
 
 Facebook Profile: https://www.facebook.com/sadmia.com.bd
